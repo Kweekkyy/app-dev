@@ -13,9 +13,14 @@
 ## Characters:
 
 ### Carl Fredricksen
-![image](https://static.wikia.nocookie.net/pixar/images/7/71/Carl.png/revision/latest?cb=20210111185742) 
+![image](https://i.pinimg.com/564x/92/e9/c9/92e9c9ddb274e5364e18258a072719a7.jpg)
 
 *Carl Fredricksen is the main character of Up.In 1939, 9-year-old Carl Fredricksen[1] was a shy, quiet boy who idolized renowned explorer Charles F. Muntz.*
+
+### Ellie Fredricksen
+![image](https://i.pinimg.com/564x/4d/1d/d4/4d1dd4439ae6e267c5941681eb70be84.jpg)
+
+*Elizabeth "Ellie" Fredricksen (before Docter) was a character who (despite her death before the main events of the movie) played a significant role in Up. She was the wife of Carl Fredericksen.*
 
 ### Russell 
 ![image](https://i.pinimg.com/236x/ec/ed/29/eced29fae5e976b4abae6623a103de01.jpg) 
@@ -33,8 +38,10 @@
 *Dug is one of the main characters in Up. He also appears in Dug's Special Mission and the Disney+ series Dug Days as the main character, and in George & A.J. as a minor character.*
 
 
+### Alpha
+![image](https://static.wikia.nocookie.net/pixar/images/a/a8/Alpha.png/revision/latest?cb=20110502114328)
 
-
+*Alpha is one of the characters in Up and also one of the main characters in the short film Dug's Special Mission.*
 
 
 
