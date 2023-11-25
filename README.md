@@ -23,7 +23,7 @@
 *Russell is an nine-year-old Wilderness Explorer.Russell makes friends with an exotic bird which he names Kevin*
 
 You can watch in these following links:
-[Prime Video](https://www.primevideo.com/)
-[Disney Plus](https://www.apps.disneyplus.com/)
+[Prime Video](https://www.primevideo.com/),
+[Disney Plus](https://www.apps.disneyplus.com/) &
 [JustWatch](https://www.justwatch.com/us/movie/up-2009)
 
