@@ -23,7 +23,7 @@
 *Russell is an nine-year-old Wilderness Explorer.Russell makes friends with an exotic bird which he names Kevin*
 
 ### Kevin
-![image](https://static.wikia.nocookie.net/pixar/images/7/7a/Kevin1.jpg/revision/latest?cb=20160206173747) 
+![image](https://static.wikia.nocookie.net/pixar/images/b/b2/Screen_Shot_2011-12-07_at_8.09.12_AM.png/revision/latest?cb=20111210184050) 
 
 *Kevin is a character in Up. She also appeared in Dug's Special Mission as a supporting character.*
 
