@@ -13,7 +13,7 @@
 ## Characters:
 
 ### Carl Fredricksen
-![image](https://i.pinimg.com/564x/92/e9/c9/92e9c9ddb274e5364e18258a072719a7.jpg)
+![image](https://i.pinimg.com/564x/78/e9/8d/78e98d6cf0e15e9993baf70717acfa73.jpg)
 
 *Carl Fredricksen is the main character of Up.In 1939, 9-year-old Carl Fredricksen[1] was a shy, quiet boy who idolized renowned explorer Charles F. Muntz.*
 
@@ -39,7 +39,7 @@
 
 
 ### Alpha
-![image](https://static.wikia.nocookie.net/pixar/images/a/a8/Alpha.png/revision/latest?cb=20110502114328)
+![image](https://i.pinimg.com/564x/f2/ff/c8/f2ffc80dd99747ef65a240b78f60ff04.jpg)
 
 *Alpha is one of the characters in Up and also one of the main characters in the short film Dug's Special Mission.*
 
