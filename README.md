@@ -12,6 +12,6 @@
 *************************
 ## Characters:
 ### Russell 
-*Russell is an nine-year-old Wilderness Explore*
 
-![image](https://static.wikia.nocookie.net/pixar/images/9/96/Russell1.png/revision/latest/smart/width/250/height/250?cb=20110416122426)
+  ![image](https://static.wikia.nocookie.net/pixar/images/9/96/Russell1.png/revision/latest/smart/width/250/height/250?cb=20110416122426)
+*Russell is an nine-year-old Wilderness Explore*
