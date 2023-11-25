@@ -11,8 +11,15 @@
 
 *************************
 ## Characters:
-### Russell 
 
+### Carl Fredricksen
+![image](https://static.wikia.nocookie.net/pixar/images/7/71/Carl.png/revision/latest?cb=20210111185742)
+
+*Carl Fredricksen is the main character of Up.In 1939, 9-year-old Carl Fredricksen[1] was a shy, quiet boy who idolized renowned explorer Charles F. Muntz.*
+
+### Russell 
 ![image](https://static.wikia.nocookie.net/pixar/images/9/96/Russell1.png/revision/latest/smart/width/250/height/250?cb=20110416122426)
 
-*Russell is an nine-year-old Wilderness Explore*
+*Russell is an nine-year-old Wilderness Explorer.Russell makes friends with an exotic bird which he names Kevin*
+
+
