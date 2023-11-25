@@ -13,7 +13,7 @@
 ## Characters:
 
 ### Carl Fredricksen
-![image](https://i.pinimg.com/564x/78/e9/8d/78e98d6cf0e15e9993baf70717acfa73.jpg)
+![image](https://i.pinimg.com/originals/48/7e/47/487e47f67ce82a697a4b9a902cb01960.jpg)
 
 *Carl Fredricksen is the main character of Up.In 1939, 9-year-old Carl Fredricksen[1] was a shy, quiet boy who idolized renowned explorer Charles F. Muntz.*
 
