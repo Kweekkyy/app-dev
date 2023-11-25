@@ -8,3 +8,6 @@
 *************************
 ### Film synopsis
 *Carl Fredricksen, a 78-year-old balloon salesman, is about to fulfill a lifelong dream. Tying thousands of balloons to his house, he flies away to the South American wilderness. But curmudgeonly Carl's worst nightmare comes true when he discovers a little boy named Russell is a stowaway aboard the balloon-powered house. A Pixar animation.*
+
+*************************
+![image](https://static.wikia.nocookie.net/pixar/images/9/96/Russell1.png/revision/latest/smart/width/250/height/250?cb=20110416122426)
