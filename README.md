@@ -18,7 +18,7 @@
 *Carl Fredricksen is the main character of Up.In 1939, 9-year-old Carl Fredricksen[1] was a shy, quiet boy who idolized renowned explorer Charles F. Muntz.*
 
 ### Russell 
-![image](https://static.wikia.nocookie.net/pixar/images/2/2d/Up3.jpg/revision/latest?cb=20110506160902) 
+![image](https://i.pinimg.com/236x/ec/ed/29/eced29fae5e976b4abae6623a103de01.jpg) 
 
 *Russell is an nine-year-old Wilderness Explorer.Russell makes friends with an exotic bird which he names Kevin*
 
@@ -28,7 +28,7 @@
 *Kevin is a character in Up. She also appeared in Dug's Special Mission as a supporting character.*
 
 ### Dug
-![image](https://static.wikia.nocookie.net/pixar/images/3/35/Dug-up.jpg/revision/latest?cb=20090602035123) 
+![image](https://i.pinimg.com/564x/d1/0e/96/d10e96559fd0d8711a1a136548f61903.jpg) 
 
 *Dug is one of the main characters in Up. He also appears in Dug's Special Mission and the Disney+ series Dug Days as the main character, and in George & A.J. as a minor character.*
 
