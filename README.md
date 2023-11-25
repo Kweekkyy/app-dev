@@ -45,12 +45,9 @@
 *Alpha is one of the characters in Up and also one of the main characters in the short film Dug's Special Mission.*
 
 ****************
-
-
 ## You can watch in these following links:
 [Prime Video](https://www.primevideo.com/),
 [Disney Plus](https://www.apps.disneyplus.com/) &
 [JustWatch](https://www.justwatch.com/us/movie/up-2009)
-
 
 *THANK YOU*
