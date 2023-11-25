@@ -1,5 +1,6 @@
-# app-dev
+![image](https://github.com/Kweekkyy/app-dev/assets/74846575/30d141c0-e54d-47ab-9a95-8adfa163540b)# app-dev
 
 My first repository
 *************************************
-	![alt [text](https://preview.redd.it/d3d2bw3lqae81.png?width=1080&crop=smart&auto=webp&s=5bb1734cf05bb475f8bdf7539afa0db1876465a0)https://preview.redd.it/d3d2bw3lqae81.png?width=1080&crop=smart&auto=webp&s=5bb1734cf05bb475f8bdf7539afa0db1876465a0] 
+
+[Up Movie](https://preview.redd.it/d3d2bw3lqae81.png) 
