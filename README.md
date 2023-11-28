@@ -8,7 +8,8 @@
 *Carl Fredricksen, a 78-year-old balloon salesman, is about to fulfill a lifelong dream. Tying thousands of balloons to his house, he flies away to the South American wilderness. But curmudgeonly Carl's worst nightmare comes true when he discovers a little boy named Russell is a stowaway aboard the balloon-powered house. A Pixar animation.*
 
 *************************
-| Movie Genre |
+
+| Film Genre |
 | ---------------------- |
 | Comedy |
 | Drama |
@@ -49,7 +50,16 @@
 
 *Alpha is one of the characters in Up and also one of the main characters in the short film Dug's Special Mission.*
 
-****************
+*************************
+
+## Here are some of the things that make Up a great movie:
+
+- The story is heartwarming and emotional. Up is a story about love, loss, and friendship. 
+- It is a film that can be enjoyed by people of all ages. The animation is beautiful and innovative. Up uses a unique animation style that is both realistic and expressive. 
+- The film's use of color is also particularly noteworthy.The characters are memorable and relatable. Carl and Russell are both well-developed characters that the audience can easily root for.
+- The film has a strong message about the importance of following your dreams. Up is a film that encourages people to never give up on their dreams, no matter how difficult they may seem.
+
+*************************  
 ## You can watch on these following links:
 [Prime Video](https://www.primevideo.com/),
 [Disney Plus](https://www.apps.disneyplus.com/) &
