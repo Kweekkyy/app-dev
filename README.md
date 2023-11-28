@@ -8,6 +8,14 @@
 *Carl Fredricksen, a 78-year-old balloon salesman, is about to fulfill a lifelong dream. Tying thousands of balloons to his house, he flies away to the South American wilderness. But curmudgeonly Carl's worst nightmare comes true when he discovers a little boy named Russell is a stowaway aboard the balloon-powered house. A Pixar animation.*
 
 *************************
+| Movie Genre |
+| ---------------------- |
+| Comedy |
+| Drama |
+| Adventure |
+| Children's Film |
+
+*************************
 ## Characters:
 
 ### Carl Fredricksen
@@ -42,7 +50,7 @@
 *Alpha is one of the characters in Up and also one of the main characters in the short film Dug's Special Mission.*
 
 ****************
-## You can watch in these following links:
+## You can watch on these following links:
 [Prime Video](https://www.primevideo.com/),
 [Disney Plus](https://www.apps.disneyplus.com/) &
 [JustWatch](https://www.justwatch.com/us/movie/up-2009)
